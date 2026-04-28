@@ -1,5 +1,5 @@
 # 💫 About Me:
-Una estudiante con interés en la tecnología..ೃ࿐<br> Me gusta escuchar música ૮₍ ´ ꒳ `₎ა<br>Dibujar y pintar  ݁ ˖Ი𐑼⋆<br>y personalizar todo  𐔌՞. .՞𐦯<br>       -ˋˏ ༻❁༺ ˎˊ-
+Una estudiante con interés en la tecnología..ೃ࿐<br> Me gusta escuchar música ૮₍ ´ ꒳ `₎ა<br>Dibujar, pintar  ݁ ˖Ი𐑼⋆<br>y personalizar todo  𐔌՞. .՞𐦯<br>       -ˋˏ ༻❁༺ ˎˊ-
 
 
 ## 🌐 Socials:
